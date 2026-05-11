@@ -1,4 +1,4 @@
-# 
+# Figma for macOS instant Brush Pack - blend modes and content-aware fill is the best Figma for macOS brush, featuring blend modes and content-aware fill. Safe, efficient, and
 
 
 
